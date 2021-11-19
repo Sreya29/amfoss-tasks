@@ -12,7 +12,7 @@
 
 *I can contribute my ability to streamline the club.I will try to work in all possible ways that would help the club to grow.I would go any extent to make **AMFOSS** the best of all and i will work with determination with all of my abilities to help in the growth of the club.*
 
-## *Do you have any feedback for the selection process?**
+## **Do you have any feedback for the selection process?**
 
 *No, this selection process is the best to find who is dedicated enough and who meets all the requirements for the club.I personally feel amazed by seeing my progress day by day and the way i am improving at things.I feel the selection process is fair enough.*
 
