@@ -1,3 +1,3 @@
 ## JSExplorer
 
-*I haven't attempted this yet.*
+*I just started but haven't completed this yet.*
