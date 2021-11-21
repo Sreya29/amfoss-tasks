@@ -1,3 +1,3 @@
 ##  Aerglo Mars
 
-*I haven't attempted it yet.*
+*I just go throughed the references. I haven't attempted it yet.*
