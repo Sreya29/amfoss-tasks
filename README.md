@@ -25,7 +25,7 @@
 
 ## **My views about the tasks**
 
-*I attempted and finished these tasks by myself.So, i cannot say that they are too simple or too complicated.Though few of the tasks were time taking, they were not impossible.I feel that these tasks are beginner friendly and references provided helped me greatly.I should mention that these tasks are really challenging and it helped me a lot to learn more.I am acquiring new skills because of these tasks and i am willing to learn more and see growth in myself.These tasks helped me in learning many things, which i am not familiar, by my own.
+*I attempted and finished these tasks by myself.So, i cannot say that they are too simple or too complicated.Though few of the tasks were time taking, they were not impossible.I feel that these tasks are beginner friendly and references provided helped me greatly.I should mention that these tasks are really challenging and it helped me a lot to learn more.I am acquiring new skills because of these tasks and i am willing to learn more and see growth in myself.These tasks helped me in learning many things, which i am not familiar, by my own.*
 
 
 # **My Introduction**
